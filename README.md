@@ -1,4 +1,4 @@
 # Portfolio
 
-Name: Yerin Joo (She/her)
+Name: Yerin Joo (She/her)  
 Sookmyung Womens' University in Seoul, South Korea
